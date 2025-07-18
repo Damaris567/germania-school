@@ -1,1 +1,1 @@
-# germania-school
+germania-school
